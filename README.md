@@ -1,0 +1,1 @@
+# f-oryantasyon-final-devi
